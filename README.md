@@ -1,4 +1,4 @@
-![The_Fire_Within_T](https://github.com/user-attachments/assets/9aaab591-c1b9-4834-a86c-b6b1e67a457c)
+![The_Fire_Within_T](https://static.wikia.nocookie.net/projectsekai/images/1/1c/The_Fire_Within_T.png/revision/latest/scale-to-width-down/1000?cb=20210228084327)
 this MAY be me.....
 
 -----
