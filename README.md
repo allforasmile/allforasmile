@@ -1,12 +1,10 @@
-![The_Fire_Within_T](https://static.wikia.nocookie.net/projectsekai/images/1/1c/The_Fire_Within_T.png/revision/latest/scale-to-width-down/1000?cb=20210228084327)
-this MAY be me.....
+remaking!! this is all temp
 
------
-## Look at urls for more information!
-### PT INFO:
-- I'M A QUESTIONING SYSTEM!!! the "me" youre talking too might not be me!!
-- Feel free to copy! idm just credit if someone asks ><
-- I can get a little *freaky*, if i make you uncomfy just say and ill stop!!
-- I LOVE TALKING JUST PLEASE START I DONT WANNA BOTHER OTHERS
+basic info abt me for the meantime
+- osdd 1a sys w/ adhd !! current fixations are pjsk & phighting >_<
+- im 15 y/o !! i make vulgar jokes alot LOL
+- discord is @allforasmile , main twt is @allf0rasmile and phightingtwt is @iluvcombatknife. feel free to follow or tag me!
+- i am taken (2/22/25). im transneu aroace and thats all u need to know...
 
-## all my socials are @ruikasavinegar! if we got along, feel free to add me on discord! 
+  lets be friends!! ok? ok.
+  blehhhhhhh
