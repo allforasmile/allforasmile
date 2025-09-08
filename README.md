@@ -1,10 +1,16 @@
-remaking!! this is all temp
+# AKIRA , RUI , KASPER !!
+* wip
+15 | AGENDER | TAKEN 2,22,25!
 
-basic info abt me for the meantime
-- osdd 1a sys w/ adhd !! current fixations are pjsk & phighting >_<
-- im 15 y/o !! i make vulgar jokes alot LOL
-- discord is @allforasmile , main twt is @allf0rasmile and phightingtwt is @iluvcombatknife. feel free to follow or tag me!
-- i am taken (2/22/25). im transneu aroace and thats all u need to know...
+-------------------------------
+➜  **C + H?** ; Sure !
 
-  lets be friends!! ok? ok.
-  blehhhhhhh
+➜ **W2I?** ; PLEASE!!
+
+➜ **COPY / INSPO?** ; idgaf go ahead! just credit me if its DIRECT copy
+
+-------------------------------
+# Check out my links for info abt me!
+if we get along, feel free to message me on discord! (allforasmile) 
+
+**my fandoms:** project sekai, vocaloid, phightnig
