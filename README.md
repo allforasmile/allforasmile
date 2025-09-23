@@ -2,7 +2,7 @@
 <p align="center"> ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ </p> 
 
 
-<p align="center"> HI I'M KIRA! YOU CAN ALSO CALL ME BY THE PONY I'M WEARING!!</p>
+<p align="center"> HI I'M <strong>KIRA!</strong> YOU CAN ALSO CALL ME BY THE PONY I'M WEARING!!</p>
 <p align="center"> Look under my links for my ata & straw!! </p>
 
  
