@@ -10,14 +10,14 @@
 <p align="center"> ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ </p> 
 
 
- 𝗖𝗢𝗣𝗬 / 𝗜𝗡𝗦𝗣𝗢? 
+<p align="center"> <strong> 𝗖𝗢𝗣𝗬 / 𝗜𝗡𝗦𝗣𝗢? </strong> </p>
  
-⤷ Sure!
+<p align="center"> <strong>⤷ Sure!</strong> </p>
 
 
-𝐂+𝐇? 
+<p align="center"> 𝐂+𝐇? </p>
 
-⤷ OFC!! 
+<p align="center">⤷ OFC!! </p>
 
 
 
