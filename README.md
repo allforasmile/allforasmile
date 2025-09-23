@@ -1,1 +1,1 @@
-remaking again cuz i didnt like the formatting LMAOoOOOOO
+![](https://files.catbox.moe/c0im7l.png)
