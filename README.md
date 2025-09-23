@@ -12,10 +12,10 @@
 
 <p align="center"> <strong> 𝗖𝗢𝗣𝗬 / 𝗜𝗡𝗦𝗣𝗢? </strong> </p>
  
-<p align="center"> <strong>⤷ Sure!</strong> </p>
+<p align="center"> ⤷ Sure! </p>
 
 
-<p align="center"> 𝐂+𝐇? </p>
+<p align="center"> <strong>𝐂+𝐇? </strong> </p>
 
 <p align="center">⤷ OFC!! </p>
 
