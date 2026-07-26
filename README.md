@@ -13,7 +13,7 @@
 <h>. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.</h>
 
 
-<sup> [**ATA!!**](https://ruikasavinegar.atabook.org) + [**PRNS!!**](https://pronouns.cc/@makoren2010) + [**STRAW**](https://grapplekit.straw.page) 🫀
+<sup> [**ATA!!**](https://wonderlandsxshowtime.atabook.org) + [**PRNS!!**](https://pronouns.cc/@makoren2010) + [**STRAW**](https://grapplekit.straw.page) 🫀
 
 
 <h>. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.</h>
