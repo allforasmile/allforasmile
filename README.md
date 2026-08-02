@@ -22,7 +22,7 @@
 <sup> hihi !! im rui , i only rlly get on during school (or when i remember) so please forgive me if i disappear for awhile haha ٠࣪⭑ </sup>
 
 <sup> im very open to making friends! 🐈‍⬛ please dont feel scared to reach out, im probably more akward than you are ^^; </sup>
-<sup> im @makoren2010 on most socials, if you use twitter and are in phighting spacess you may know me as the person who runs bigtripmine9000 ♦️ </sup>
+<sup> im @ruigraft on most socials, if you use twitter and are in phighting spacess you may know me as the person who runs bigtripmine9000 ♦️ </sup>
 
 <h>. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.</h>
 [![ALLINONE](https://i.postimg.cc/RFBCVbJN/image-2026-07-15-171032737.png)](https://postimg.cc/qt1H1wLT)
